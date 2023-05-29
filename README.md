@@ -1,1 +1,1 @@
-# thu_Details_of_Management_Information_B_Lesson8
+# 経営情報各論BⅠ　第8回目講義資料
